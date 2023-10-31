@@ -1,0 +1,1 @@
+# Smart--Data--Glove-Based-Gesture-Recognition-for-Amphibious-Communication-
